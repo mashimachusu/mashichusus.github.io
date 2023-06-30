@@ -1,0 +1,1 @@
+# mashichusus.github.io
